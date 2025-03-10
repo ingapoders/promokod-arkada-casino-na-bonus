@@ -6,7 +6,7 @@
 
 ## Чтобы начать игру с бонусами после регистрации, их нужно активировать. Для этого необходим депозит от 1000 рублей!
 
-## [ARKADA CASINO ЗЕРКАЛО 2025] (https://linkcasino.ru/arkada_e100)
+## [ARKADA CASINO ЗЕРКАЛО 2025](https://linkcasino.ru/arkada_e100)
 
 
 ![image](https://github.com/user-attachments/assets/9d754ba8-d8af-44cc-968c-aa448ab8adaa)
